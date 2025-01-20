@@ -1,0 +1,1 @@
+# School_template_CHK
